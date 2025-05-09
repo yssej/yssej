@@ -14,8 +14,6 @@
 - 💬 Ask me about **Web development | OOC**
 
 - 📫 How to reach me **jessyowen48@gmail.com**
-  
-- ⚡ Fun fact **Yssej**
 
 </td>
 <td width="50%" align="center">
